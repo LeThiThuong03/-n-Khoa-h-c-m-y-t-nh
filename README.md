@@ -1,1 +1,1 @@
-# -n-Khoa-h-c-m-y-t-nh
+# KHOA HOC MAY TINH 
